@@ -64,7 +64,7 @@ Dashboards are as follows:
 
 
 
-Feedback on forecast accuracy & visual design is welcome 👇
+Feel free to connect with me on Linkedin : https://www.linkedin.com/in/aman-raj46983/
 
 
 
